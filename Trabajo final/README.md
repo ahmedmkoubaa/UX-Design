@@ -2,7 +2,7 @@
 
 Ahmed El Moukhtari Koubaa 
 
-https://github.com/ahmedmkoubaa/trabajo\_final\_diu
+https://github.com/ahmedmkoubaa/UX-Design
 
 **ÍNDICE**
 
